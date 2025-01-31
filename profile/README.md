@@ -6,6 +6,10 @@ The bid was presented on behalf of the country by Ms. Joyce Konofilia, the Pagea
 
 When confirming the exciting news from Nauru last night to SIBC News, Ms. Konofilia said she is overjoyed and is looking forward to returning to the country and start organizing.
 
+### 𝗪𝗔𝗧𝗖𝗛 MISS PACIFIC ISLANDS PAGEANT 2025 𝗟𝗜𝗩𝗘 𝗦𝗧𝗥𝗘𝗔𝗠𝗜𝗡𝗚 𝗙𝗥𝗘𝗘!
+
+### 𝗟𝗜𝗩𝗘 NOW➤ https://tinyurl.com/22svjz4m
+
 
 “The bid submission is a joint effort, a public and private sector partnership which was prepared by my team and was endorsed and supported by the caretaker government through the Ministry of Culture and Tourism, the Ministry of Women, Youth, and Family Affairs, the Ministry of Finance and the Prime Minister’s Office.
 
@@ -24,6 +28,10 @@ She also mentioned that Solomon Islands was unable to organize a national Miss S
 “This is because our main sponsor is also one of the sponsors of the 2023 Pacific Games. So, we were unable to secure funding to stage the pageant show last year. But this year as part of the plan, we are looking to host a national pageant event in the third or fourth quarter so we can have a contestant in the event we will be hosting next year.
 
 “I’m assuming this year’s Miss Solomon pageant will be a tough competition because we want to raise the standards of our contestant who will be participating in the 2025 Miss Pacific Pageant in the country,” Ms. Konofilia said.
+
+### 𝗪𝗔𝗧𝗖𝗛 MISS PACIFIC ISLANDS PAGEANT 2025 𝗟𝗜𝗩𝗘 𝗦𝗧𝗥𝗘𝗔𝗠𝗜𝗡𝗚 𝗙𝗥𝗘𝗘!
+
+### 𝗟𝗜𝗩𝗘 NOW➤ https://tinyurl.com/22svjz4m
 
 She in the meantime acknowledged the support rendered by all stakeholders namely; the Ministry of Culture and Tourism, the Ministry of Women, Youth, and Family Affairs, the Ministry of Finance and the Prime Minister’s Office and others.
 
